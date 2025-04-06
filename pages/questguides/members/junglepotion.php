@@ -27,7 +27,7 @@ The 2nd to last herb is called Vocenia Moss. Head southeast to a little pile of 
 The grand finale herb is called Rouges Purse. Of course the last is the hardest so make sure you have some Armor and maybe food and head north. You should see the entrance to a dungeon up on some cliffs, head east around the cliffs and then back west up on them until you enter the cave<br>
 <br>
 <br>
-Once your in run past Jogres or fight them to the southeast passage. Look for the fungus covered wall, search it, and id the rouges purse. Head back to Trifitus for the 5th and final time.<br>
+Once you're in run past Jogres or fight them to the southeast passage. Look for the fungus covered wall, search it, and id the rouges purse. Head back to Trifitus for the 5th and final time.<br>
 <br>
 <br>
 Once back, Trifitus will thank and reward you and train you in herblore. (Congratulations)<br>
